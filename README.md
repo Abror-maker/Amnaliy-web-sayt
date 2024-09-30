@@ -1,0 +1,2 @@
+# Amnaliy-web-sayt
+Amaliyot
